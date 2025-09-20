@@ -1,1 +1,1 @@
-SATANIA666.github.io/netclicks
+https://satania666.github.io/netclicks/
